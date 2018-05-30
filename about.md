@@ -8,8 +8,8 @@ Some information about you!
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+24 years old, undergraduate of Musical Composition and Improvisation from Wilfrid Laurier University, pursuing a Masters of Music and Culture at Carleton University with a specialization in Digital Humanities. I’m currently playing shows that explore electric bass and voice song writing. I’m also always trying to improve my lyricism and musical expression/sound.
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[kasiacjach@gmail.com](kasiacjach@gmail.com)
