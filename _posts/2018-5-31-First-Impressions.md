@@ -32,7 +32,3 @@ During my intake session with Kate and Angela, I think it was Angela and I at th
 from many different cultures. I’d like to see the violin embrace the different aspects of Canada. Perhaps this means combing a Baroque 
 piece with a rapper. Or perhaps Hiphop with a classical piece. I think this is an interesting and effective way to combine both worlds, 
 young and old, to enjoy the sound of the 3D violin. 
-
-May 11th, 2018
-
-
